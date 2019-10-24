@@ -6,6 +6,6 @@ Installation:
 
 PS : This map is under Michael's house !!!
 
-All credit for the making of the map is to GustavoDaz.
+All credit for the making of the map is to Gustavo.
 
 
